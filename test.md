@@ -1,1 +1,1 @@
-Today is 6th May, I'm superpumped.
+Today is Mondy, I'm superpumped.
